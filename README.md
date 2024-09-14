@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @mygadjet
+- 👀 I’m interested in gadgets 🤣
